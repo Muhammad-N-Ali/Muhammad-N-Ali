@@ -7,4 +7,4 @@ You can contact me via
 email: m.naeemali572@gmail.com
 or
 visit my linkIn Profile
-www.linkedin.com/in/muhammad-naeem-ali
+www.linkedin.com/in/mna2
